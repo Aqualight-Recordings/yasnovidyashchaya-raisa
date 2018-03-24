@@ -1,2 +1,0 @@
-# yasnovidyashchaya-raisa
-GitHub Pages
